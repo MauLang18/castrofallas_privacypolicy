@@ -43,4 +43,4 @@ Es posible que actualicemos nuestra política de privacidad de vez en cuando. Po
 ### Contacto  
 Si tiene alguna pregunta o sugerencia sobre nuestra Política de Privacidad, no dude en ponerse en contacto con nosotros.  
 Información de contacto:  
-Correo electrónico: rsibaja@castrofallas.com 
+Correo electrónico: grupocastrofallascr@gmail.com
